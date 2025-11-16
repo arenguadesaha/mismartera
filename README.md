@@ -1,0 +1,2 @@
+# mismartera
+privecy policy
